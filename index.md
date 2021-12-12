@@ -42,6 +42,8 @@ l.	To cancel the order, follow the procedure
 We reserve the right to alter this Refund Policy at any time. Such alterations will be posted on our application. You can also obtain an up-to-date copy of our Refund Policy by contacting us at
 
 Enrivers Private Limited 
+  
 INDIA 
+  
 This document was last updated on December 10, 2021
 
